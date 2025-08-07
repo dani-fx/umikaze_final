@@ -1,4 +1,4 @@
-# 🌸 Sakura BTC - STATIČNA RAZLIČICA
+# 🌸 Umikaze BTC - STATIČNA RAZLIČICA
 
 ## ✅ JAMČI DELOVANJE!
 
